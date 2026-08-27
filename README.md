@@ -10,31 +10,10 @@
 
 <p align="center">
   <u> $\color{#C6DB2B}{\textsf{𝙷𝚎𝚕𝚕𝚘, 𝙸'𝚖 𝙲𝚊𝚒𝚗 / 𝙵𝚛𝚊𝚗𝚔 / 𝙺𝚘𝚗𝚗𝚢 !!!}}$
-
-
-
-
-
-
 <p align="center">
-<img width=1000 src="https://64.media.tumblr.com/262698e43315a9e3f344bb08a182ee5e/d290366a496c8184-f3/s540x810/860746654c80f4cb4295e22b2aca0f9da560b676.gifv">
+$\color{#C6DB2B}{\textsf{𝚃𝚑𝚒𝚜 𝚒𝚜 𝚐𝚘𝚒𝚗𝚐 𝚝𝚘 𝚋𝚎 𝚛𝚎𝚊𝚕 𝚋𝚕𝚞𝚗𝚝, 𝚋𝚞𝚝 𝙸 𝚊𝚖 𝚝𝚘𝚘 𝚏𝚞𝚌𝚔𝚒𝚗𝚐 𝚘𝚕𝚍 𝚏𝚘𝚛 𝚢𝚘𝚞𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗 𝚍𝚛𝚊𝚖𝚊 𝙸𝚏 𝙸'𝚖 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚠𝚒𝚝𝚑 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚢𝚘𝚞 𝚍𝚘𝚗'𝚝 𝚕𝚒𝚔𝚎, 𝚋𝚕𝚘𝚌𝚔 𝚖𝚎. 𝙸𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚍𝚛𝚊𝚐 𝚖𝚎 𝚒𝚗𝚝𝚘 𝚢𝚘𝚞𝚛 𝚋𝚞𝚕𝚕𝚜𝚑𝚒𝚝, 𝙸'𝚕𝚕 𝚋𝚎 𝚋𝚕𝚘𝚌𝚔𝚒𝚗𝚐 𝚢𝚘𝚞. 𝚂𝚒𝚖𝚙𝚕𝚎.}}$     
 
-<p align="center">
-<img height=250 src="https://files.catbox.moe/6gy2gf.png">
 
-<p align="center">
-<u> $\color{#e6cc00}{\textsf{𝐇𝐞𝐲𝐚 𝐢𝐧𝐭𝐞𝐫𝐧𝐞𝐭 𝐩𝐞𝐫𝐬𝐨𝐧!}}$     
-
-<p align="center">
-$\color{#e6cc00}{\textsf{𝐔𝐡𝐡𝐡𝐡... 𝐥𝐨𝐰𝐤 𝐝𝐮𝐧𝐧𝐨 𝐰𝐡𝐚𝐭 𝐭𝐨 𝐩𝐮𝐭 𝐡𝐞𝐫𝐞, 𝐬𝐨 𝐲𝐞𝐚𝐡 :𝐩}}$     
-
-<p align="center">
-<img width=100 src="https://64.media.tumblr.com/cbed4adbd2b7e339bf070fe4955b3085/806de094eced1759-23/s100x200/ea24fda036845420acde6ea4186985793163d97e.gifv">
-
-<p align="right">
-<img height=400 src="https://files.catbox.moe/9ay9sa.png">
-
-<p align="right">
 $\color{#e6cc00}{\textsf{⬆ 𝐘𝐮𝐩, 𝐭𝐡𝐚𝐭'𝐬 𝐦𝐞...}}$     
 
 <p align="center">
