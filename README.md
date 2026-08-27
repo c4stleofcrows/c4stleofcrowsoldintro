@@ -24,6 +24,9 @@ $\color{#C6DB2B}{\textsf{𝚢𝚘𝚞 𝚍𝚘𝚗'𝚝 𝚕𝚒𝚔𝚎, 𝚋�
 <p align="center">
   <u> $\color{#2b6214}{\textsf{𝙄𝙩'𝙨 𝙚𝙖𝙨𝙞𝙚𝙧 𝙩𝙤 𝙡𝙖𝙪𝙜𝙝 𝙗𝙪𝙩 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙢𝙖𝙠𝙚𝙨 𝙮𝙤𝙪 𝙨𝙩𝙞𝙘𝙠 𝙖𝙧𝙤𝙪𝙣𝙙.}}$
 
+<p align="center">
+$\color{#C6DB2B}{\textsf{𝙻𝚘𝚘𝚔 𝚒𝚗𝚝𝚘 𝚖𝚢 𝚕𝚒𝚗𝚔𝚜:}}$
+
 <p align="center"> <a href="https://c4stleofcrows.atabook.org/">ata</a> <a href="https://guns.lol/c4stle">guns</a> <a href="https://c4stleofcrows.straw.page/">WIPstraw</a> </p>
 
 
@@ -32,8 +35,8 @@ $\color{#C6DB2B}{\textsf{𝚢𝚘𝚞 𝚍𝚘𝚗'𝚝 𝚕𝚒𝚔𝚎, 𝚋�
 
  <div align="center">
    <details>
-<summary>BYI</summary>
-I can be **very** blunt, awkward, or dry seeming.
+<summary>𝙱𝚈𝙸</summary>
+𝙸 𝚌𝚊𝚗 𝚋𝚎 𝚅𝙴𝚁𝚈 𝚋𝚕𝚞𝚗𝚝, 𝚊𝚠𝚔𝚠𝚊𝚛𝚍, 𝚘𝚛 𝚍𝚛𝚢 𝚜𝚎𝚎𝚖𝚒𝚗𝚐. 𝙳𝚘 𝚗𝚘𝚝 𝚝𝚊𝚔𝚎 𝚝𝚑𝚒𝚜 𝚊𝚜 𝚖𝚎 𝚋𝚎𝚒𝚗𝚐 𝚞𝚙𝚜𝚎𝚝 𝚠𝚒𝚝𝚑 𝚢𝚘𝚞, 𝙸'𝚖 𝚕𝚒𝚔𝚎𝚕𝚢 𝚗𝚘𝚝, 𝙸'𝚖 𝚓𝚞𝚜𝚝 𝚖𝚘𝚛𝚎 𝚏𝚘𝚛𝚖𝚊𝚕. 𝙸 𝚑𝚊𝚟𝚎 𝙰𝙳𝙷𝙳, 𝙾𝙲𝙳, 𝚊𝚗𝚍 𝚜𝚘𝚖𝚎 𝚘𝚝𝚑𝚎𝚛 𝚍𝚒𝚜𝚘𝚛𝚍𝚎𝚛𝚜 𝙸 𝚠𝚒𝚕𝚕 𝚗𝚘𝚝 𝚍𝚒𝚜𝚌𝚕𝚘𝚜𝚎. 𝙸 𝙳𝙾 𝚑𝚊𝚟𝚎 𝚖𝚘𝚘𝚍 𝚜𝚠𝚒𝚗𝚐𝚜 𝚌𝚘𝚗𝚜𝚒𝚜𝚝𝚎𝚗𝚝𝚕𝚢, 𝚜𝚘 𝚊𝚕𝚠𝚊𝚢𝚜 𝙸𝚆𝙲. 𝙼𝚢 𝚑𝚞𝚖𝚘𝚛 𝚒𝚜 𝚊 𝚋𝚒𝚝 𝚍𝚊𝚛𝚔𝚎𝚛 𝚊𝚗𝚍 𝙸 𝚜𝚊𝚢 𝚜𝚕𝚞𝚛𝚜 𝙸 𝚌𝚊𝚗 𝚛𝚎𝚌𝚕𝚊𝚒𝚖.
 </details>
 </div>
     
