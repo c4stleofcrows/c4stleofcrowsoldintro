@@ -24,13 +24,8 @@ $\color{#C6DB2B}{\textsf{𝚢𝚘𝚞 𝚍𝚘𝚗'𝚝 𝚕𝚒𝚔𝚎, 𝚋�
 <p align="center">
   <u> $\color{#2b6214}{\textsf{𝙄𝙩'𝙨 𝙚𝙖𝙨𝙞𝙚𝙧 𝙩𝙤 𝙡𝙖𝙪𝙜𝙝 𝙗𝙪𝙩 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙢𝙖𝙠𝙚𝙨 𝙮𝙤𝙪 𝙨𝙩𝙞𝙘𝙠 𝙖𝙧𝙤𝙪𝙣𝙙.}}$
 
+<p align="center"> <a href="https://c4stleofcrows.atabook.org/">ata</a> <a href="https://guns.lol/c4stle">guns</a> <a href="https://c4stleofcrows.straw.page/">WIPstraw</a> </p>
 
-
-  [ata](https://c4stleofcrows.atabook.org/)
-  
-  [guns](https://guns.lol/c4stle)
-
- [WIPstraw](https://c4stleofcrows.straw.page/)
 
   <p align="center">
   <u> $\color{#2b6214}{\textsf{𝙔𝙤𝙪 𝙘𝙖𝙣'𝙩 𝙬𝙖𝙩𝙘𝙝 𝙛𝙧𝙤𝙢 𝙖𝙗𝙤𝙫𝙚 𝙖𝙣𝙙 𝙠𝙚𝙚𝙥 𝙮𝙤𝙪𝙧 𝙩𝙚𝙣 𝙩𝙤𝙚𝙨 𝙞𝙣 𝙩𝙝𝙚 𝙨𝙖𝙣𝙙.}}$
