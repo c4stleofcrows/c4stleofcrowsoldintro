@@ -27,7 +27,7 @@ $\color{#C6DB2B}{\textsf{𝚢𝚘𝚞 𝚍𝚘𝚗'𝚝 𝚕𝚒𝚔𝚎, 𝚋�
 <p align="center">
 $\color{#C6DB2B}{\textsf{𝙻𝚘𝚘𝚔 𝚒𝚗𝚝𝚘 𝚖𝚢 𝚕𝚒𝚗𝚔𝚜:}}$
 
-<p align="center"> <a href="https://c4stleofcrows.atabook.org/">ata</a> <a href="https://guns.lol/c4stle">guns</a> <a href="https://c4stleofcrows.straw.page/">WIPstraw</a> </p>
+<p align="center"> <a href="https://c4stleofcrows.atabook.org/">ata</a> <a href="https://guns.lol/c4stle">guns</a> <a href="https://c4stleofcrows.straw.page/">straw</a> </p>
 
 
   <p align="center">
